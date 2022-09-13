@@ -18,3 +18,5 @@ Y como un amable recordatorio: **Este Readme.md es un CHISTE!**.  Diseñado para
 
 
 Creado por el increible HULK y abogada HULKA
+Incluye ejemplos como windows linux y mac
+
