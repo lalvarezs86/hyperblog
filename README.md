@@ -15,3 +15,6 @@ En este curso vemos de todo ala.
 * Las personalidades multiples de Freddy.
 
 Y como un amable recordatorio: **Este Readme.md es un CHISTE!**.  Diseñado para el ejemplo, si llegas acá NO te lo tomes en serio y mejor ve al curso, perro!. no mentiras, guapo.
+
+
+Creado por el increible HULK y abogada HULKA
